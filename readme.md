@@ -58,20 +58,20 @@ http://mtw.so/5MHvZq
 
 ## 
 
-![QQ截图20231205233305](D:\bishe\图片\学生信息管理系统\QQ截图20231205233305.png)
+![QQ截图20231205233305](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233305.png)
 
-![QQ截图20231205233412](D:\bishe\图片\学生信息管理系统\QQ截图20231205233412.png)
+![QQ截图20231205233412](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233412.png)
 
-![QQ截图20231205233431](D:\bishe\图片\学生信息管理系统\QQ截图20231205233431.png)
+![QQ截图20231205233431](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233431.png)
 
-![QQ截图20231205233441](D:\bishe\图片\学生信息管理系统\QQ截图20231205233441.png)
+![QQ截图20231205233441](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233441.png)
 
-![QQ截图20231205233449](D:\bishe\图片\学生信息管理系统\QQ截图20231205233449.png)
+![QQ截图20231205233449](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233449.png)
 
-![QQ截图20231205233541](D:\bishe\图片\学生信息管理系统\QQ截图20231205233541.png)
+![QQ截图20231205233541](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233541.png)
 
-![QQ截图20231205233632](D:\bishe\图片\学生信息管理系统\QQ截图20231205233632.png)
+![QQ截图20231205233632](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233632.png)
 
-![QQ截图20231205233719](D:\bishe\图片\学生信息管理系统\QQ截图20231205233719.png)
+![QQ截图20231205233719](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233719.png)
 
-![QQ截图20231205233741](D:\bishe\图片\学生信息管理系统\QQ截图20231205233741.png)
+![QQ截图20231205233741](https://gulimallcativen.oss-cn-shenzhen.aliyuncs.com/bishe/QQ%E6%88%AA%E5%9B%BE20231205233741.png)
